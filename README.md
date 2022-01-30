@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JahnviJJ
+- 🌱 I’m currently learning basic languages
+- 📫 How to reach me - 2105199@kiit.ac.in
